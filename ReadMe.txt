@@ -1,1 +1,1 @@
-hello world how are you doing?
+hello world how r you doing?
